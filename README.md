@@ -1,2 +1,3 @@
-# Mustafa.jamal129-icloud.com-
-Jamal Gurop
+# mustafa.jamal129@icloud.com
+JAMALGUROP.com 
+AKADIMI
